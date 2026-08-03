@@ -1,6 +1,7 @@
-<p align=centre>
+<p align=center>
 
   ![](https://file.garden/alqzWtqplE9QfqIP/demon%20dean%20graphic.webp)
+
 </p>
 
 <!--
