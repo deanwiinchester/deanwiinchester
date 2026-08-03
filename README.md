@@ -1,6 +1,16 @@
-<p align="center">
-  <img width="500" height="300" src="https://file.garden/alqzWtqplE9QfqIP/demon%20dean%20graphic.webp">
-</p>
+@____Dean Winchester___ ☆     he/him or vamp/vamps      
+    =ISTP-T=   🥧   ____16 bodily , partial did + dean fictkin/irl____  　
+  
+  `“ Driver picks the music, shotgun shuts his cakehole. ”`
+___
+
+- 🍒 Mainly on *`Ponytown (in RE/MCU/sonic areas or island)`*
+- or *`Discord = .angelcastiel`*
+___
+**HEAVY DNI : `Rae and his friends, Elliot and his friends, endo "systems"`**
+___
+![](https://file.garden/alqzWtqplE9QfqIP/demon%20dean%20graphic.webp)
+- `check pluralkit before int`
 <!--
 **deanwiinchester/deanwiinchester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
