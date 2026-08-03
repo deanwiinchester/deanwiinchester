@@ -1,9 +1,6 @@
-<p align=center>
-
-  ![](https://file.garden/alqzWtqplE9QfqIP/demon%20dean%20graphic.webp)
-
+<p align="center">
+  <img width="500" height="300" src="https://file.garden/alqzWtqplE9QfqIP/demon%20dean%20graphic.webp">
 </p>
-
 <!--
 **deanwiinchester/deanwiinchester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
