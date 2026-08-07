@@ -10,7 +10,7 @@ ___
 **HEAVY DNI : `Rae and his friends, Elliot and his friends, endo "systems", wincest shippers MASSIVE DNI`**
 ___
 ![](https://file.garden/alqzWtqplE9QfqIP/dean%20graphic%203.png)
-- `check pluralkit before int + follow main `
+- `check fluffle before int + follow main `
 <!--
 **deanwiinchester/deanwiinchester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
